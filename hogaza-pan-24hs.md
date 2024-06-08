@@ -17,8 +17,7 @@
 ## Cantidad
 
 1 hogaza de pan para 4 personas
-
-# 
+ 
 
 ## Procedimiento
 
